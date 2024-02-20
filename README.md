@@ -120,3 +120,5 @@ Me and karma vibe like that
 Karma is my boyfriend
 Karma is a god
 Karma's a relaxing thought
+
+![Pra amizade continuar](https://i.imgur.com/KIDna6A.png)
