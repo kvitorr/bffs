@@ -1,0 +1,15 @@
+Saudações! Meu nome é Ébert Ian.
+
+Tenho 21 anos, faço Análise e Desenvolvimento de Sistemas
+no IFPI, Campus Teresina Central.
+
+Amo jogar RPGs e MOBAs, seja sozinho ou com amigos, 
+casualmente até edito vídeos curtos das gameplays
+e posto em minhas redes sociais.
+
+Meu contato com programação iniciou no IFPI, mas desde
+pequeno me envolvi no mundo da computação pela informática.
+
+Minhas habilidades de codificação principais atualmente são em 
+HTML e CSS, mas tive contato e pouco de prática com Python, Java, 
+JS, TS, PostgreSQL, C/C++ e C#/.NET.   
