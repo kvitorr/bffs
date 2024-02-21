@@ -1,5 +1,8 @@
 Olá! Eu sou o Vitor 👋🏻
 
-Estudo Análise e Desenvolvimento de Sistemas no IFPI. Sou Dev Full Stack no CREA PI utilizando Java com os frameworks JSF e PrimeFaces e banco de dados Postgresql.
+Estudo Análise e Desenvolvimento de Sistemas no IFPI. Sou Dev Full Stack no CREA PI utilizando 
+Java com os frameworks JSF e PrimeFaces e banco de dados Postgresql.
 
-Atualmente tenho aprofundado meus estudos em Java, conhecendo mais suas funcionalidades e seus frameworks (Spring Boot e Spring Security). Além disso, tenho estudado também Docker, mensageria com RabbitMQ e microserviços.
+Atualmente tenho aprofundado meus estudos em Java, conhecendo mais suas funcionalidades e seus
+frameworks (Spring Boot e Spring Security). Além disso, tenho estudado também Docker, mensageria 
+com RabbitMQ e microserviços.
