@@ -153,8 +153,7 @@ Po-po-po-ro-po
 Pa-ra-ra-ra-ra-ra
 Pi-po-po-po-ro-po
 Po-po-po-ro-po
-Pi-po-po-po-ro-po
-Po-po-po-ro-po
+
 
 Pedrinha Moraes fazendo o som
 Fazendo o som
