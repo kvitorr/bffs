@@ -120,3 +120,86 @@ Me and karma vibe like that
 Karma is my boyfriend
 Karma is a god
 Karma's a relaxing thought
+
+I'm the Scatman
+I'm the Scatman
+Pi-po-po-po-ro-po
+Pi-po-po-po-ro-po
+Pa-ra-ra-ra-ra-ra
+Pi-po-po-po-ro-po
+Po-po-po-ro-po
+Pi-po-po-po-ro-po
+Pi-po-po-po-ro-po
+
+Pedrinha Moraes fazendo o som
+Fazendo o som
+Pedrinha Moraes fazendo o som
+Fazendo o som
+Pedrinha Moraes fazendo o som
+Fazendo o som
+Pedrinha Moraes fazendo o som
+
+Deixe o som da música fazer você dançar
+Com o Pedrinha Moraes, a festa não tem hora pra acabar
+Por isso, solte o corpo, dance, dance até se cansar
+Alegria da night é fazer, fazer vocês dançar
+
+I'm the Scatman
+I'm the Scatman
+Pi-po-po-po-ro-po
+Po-po-po-ro-po
+Pi-po-po-po-ro-po
+Po-po-po-ro-po
+Pa-ra-ra-ra-ra-ra
+Pi-po-po-po-ro-po
+Po-po-po-ro-po
+Pi-po-po-po-ro-po
+Po-po-po-ro-po
+
+Pedrinha Moraes fazendo o som
+Fazendo o som
+Pedrinha Moraes, ai, ai, ai, ai, ai (vai devagar, vai)
+Pedrinha Moraes fazendo o som
+Fazendo o som
+Pedrinha Moraes fazendo o som
+Fazendo o som
+
+Deixe o som da música fazer você dançar
+Com o Pedrinha Moraes, a festa não tem hora pra acabar
+Por isso, solte o corpo, dance, dance até se cansar
+Alegria da night é fazer, fazer vocês dançar
+
+I'm the Scatman
+I'm the Scatman
+Pi-po-po-po-ro-po
+Po-po-po-ro-po
+Pi-po-po-po-ro-po
+Po-po-po-ro-po
+Pa-ra-ra-ra-ra-ra
+Pi-po-po-po-ro-po
+Po-po-po-ro-po
+Pi-po-po-po-ro-po
+Po-po-po-ro-po
+
+Pedrinha Moraes fazendo o som
+Fazendo o som
+Pedrinha Moraes fazendo o som
+Fazendo o som
+Pedrinha Moraes fazendo o som
+Fazendo o som
+Pedrinha Moraes fazendo o som
+
+I'm the Scatman
+I'm the Scatman
+Pi-po-po-po-ro-po
+Pi-po-po-po-ro-po
+Pa-ra-ra-ra-ra-ra
+Pi-po-po-po-ro-po
+Po-po-po-ro-po
+Pi-po-po-po-ro-po
+Po-po-po-ro-po
+
+I'm the Scatman
+I'm the Scatman
+Pi-po-po-po-ro-po
+Po-po-po-ro-po
