@@ -1,0 +1,5 @@
+Olá,
+
+Meu nome é Adélia, tenho 22 anos e estudo Análise e Desenvolvimento de Sistemas no IFPI.
+
+Tenho experiência e gosto de estudar sobre frameworks como NestJs e Ruby on Rails, banco de dados PostgreSQL e análise de dados com Python.
