@@ -1,3 +1,9 @@
+#### Integrantes
+- Adélia Mara
+- Aser Carvalho
+- Ébert Ian
+- Vitor Araujo
+
 ### Pituca
 
 ```js
